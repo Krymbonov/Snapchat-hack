@@ -9,5 +9,7 @@ You will only make the payment after I provide a video demonstrating how I loggi
 Contact:
 
 Telegram: Krymbonov
+
 KiK: Krymbonov1
+
 Discord: https://discord.com/channels/1186396999264776264/1186402653232709692
